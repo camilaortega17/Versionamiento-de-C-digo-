@@ -4,4 +4,4 @@ Habia una vez un perro que queria
 Despues el valiente perro
 
 
-Finalmente llegaron al volcan en donde empezaron con el rital maya para que la sewuia se terminara en la ciudad. Aventaron diferentes tipos de plantas, estatuas y fotos mientras cantaban agarrados de las manos hasta que el cielo se lleno de nubes y el agua regreso al pueblo. 
+Finalmente llegaron al volcan en donde estallaba el delicioso aroma de los diferentes tipos de tacos que habia en ese remoto puesto de tacos. Despues de hojear el menu, el perrito y la señora se decidieron en ordenar 3 tacos de asada cada uno con su respectiva Coca-Cola de vidrio bien fria. Y vivieron felices para siempre con una panza llena y el corazón contento. Fin. 
